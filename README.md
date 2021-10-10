@@ -38,3 +38,17 @@
 
 
 B ę â ŋ ş
+
+
+
+
+
+
+
+
+
+
+
+
+# USE THIS LINK:
+#https://c0darwinx3052.github.io/SpeedAdventure/index.html
